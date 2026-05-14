@@ -1,4 +1,4 @@
-
+Enhance Alfred for macOS with best Automation for Alfred for macOS - system-cleanup and privacy-protection, the #1 automation. Includes system-cleanup and privacy-protection for a
 
 
 
